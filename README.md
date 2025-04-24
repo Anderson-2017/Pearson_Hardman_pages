@@ -1,1 +1,1 @@
-# pearson-hardman
+# pearson-hardman-pages
